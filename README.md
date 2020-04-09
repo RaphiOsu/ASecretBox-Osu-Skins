@@ -2,7 +2,7 @@
 this will stay updated
 
 # [No Mod - Whitecat CK](https://bit.ly/2xe8JsY)
-![] (https://i.imgur.com/RnzLk9O.jpg)
+![] (https://i.imgur.com/RnzLk9O.png)
 
 # [No Mod - Aristia(Edit)+trail](https://bit.ly/3e8bsov)
 ![] (imgur link)
