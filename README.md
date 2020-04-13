@@ -10,6 +10,9 @@ this will stay updated
 # [No Mod/HD - CeilingWaffle OJ idke insta](https://bit.ly/2y6JatV)
 ![](https://i.imgur.com/UfGKv9w.jpg)
 
+# [HD - RaphixMiku HD skin](https://bit.ly/2RwuqM3)
+![](https://i.imgur.com/z0SJWJV.jpg)
+
 # [HR - JTB x kano Asuka Kurashina Edit](https://bit.ly/3b0AdRC)
 ![](https://i.imgur.com/mWczMb9.jpg)
 
