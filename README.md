@@ -16,7 +16,7 @@ this will stay updated
 # [Speed - Ryuk DT Pruple](https://bit.ly/2XylxFF)
 ![](https://i.imgur.com/Y4AGrud.jpg)
 
-# [Speed - azer8dawn](https://bit.ly/2UWySFG)
+# [Speed - azer8dawn](https://bit.ly/3b8b73a)
 ![](https://i.imgur.com/gFAs7le.jpg)
 
 # [HDDT - Prawilosc vJP without followpoints](https://bit.ly/34pz2Ja)
