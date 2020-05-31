@@ -19,6 +19,9 @@ this will stay updated
 # [HD - RaphixMiku HD skin](https://bit.ly/2RwuqM3)
 ![](https://i.imgur.com/z0SJWJV.jpg)
 
+# [HD - -+ Seoul v9 Personal Skin](https://bit.ly/3gG9hdh)
+![](https://i.imgur.com/KjfFeVk.jpg)
+
 # [HR - JTB x kano Asuka Kurashina Edit](https://bit.ly/3b0AdRC)
 ![](https://i.imgur.com/mWczMb9.jpg)
 
