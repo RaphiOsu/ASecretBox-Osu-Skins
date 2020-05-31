@@ -10,6 +10,9 @@ this will stay updated
 # [No Mod - mathi+ensalada](https://bit.ly/3gtLVrb)
 ![](https://i.imgur.com/l7L6B6R.jpg)
 
+# [No Mod - -+Aesthetic 1.3.13+Solo](https://bit.ly/3gFNUZm)
+![](https://i.imgur.com/DNaBfsF.jpg)
+
 # [No Mod/HD - CeilingWaffle OJ idke insta](https://bit.ly/2y6JatV)
 ![](https://i.imgur.com/UfGKv9w.jpg)
 
@@ -30,5 +33,3 @@ this will stay updated
 
 # [EZ - 404 AimNotFound](https://bit.ly/3b7NpEx)
 ![](https://i.imgur.com/MIktd1l.jpg)
-
-
