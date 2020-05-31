@@ -37,6 +37,6 @@ this will stay updated
 # [EZ - 404 AimNotFound](https://bit.ly/3b7NpEx)
 ![](https://i.imgur.com/MIktd1l.jpg)
 
-# [EZ - 404 AimNotFound](https://bit.ly/2MiUTta)
+# [EZ - boom 0524 edit](https://bit.ly/2MiUTta)
 ![](https://i.imgur.com/fvwqiWY.jpg)
 
