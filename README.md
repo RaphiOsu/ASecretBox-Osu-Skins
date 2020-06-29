@@ -1,4 +1,4 @@
-# ASecretBox-osu-Skins
+# ASecretBox-osu!-Skins
 this will stay updated (these skins are mostly other players skins)
 
 # [No Mod - Whitecat CK](https://bit.ly/34ok45Q)
