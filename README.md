@@ -37,7 +37,7 @@ this will stay updated (these skins are mostly other players skins)
 # [EZ - 404 AimNotFound](https://bit.ly/3b7NpEx)
 ![](https://i.imgur.com/MIktd1l.jpg)
 
-# [EZ - 404 AimNotFound v2](https://bit.ly/3hmGM3P)
+# [EZ - 404 AimNotFound v2](https://bit.ly/32AiAqo)
 ![](https://i.imgur.com/BCM2Uxc.jpg)
 
 # [EZ - boom 0524 edit](https://bit.ly/2MiUTta)
